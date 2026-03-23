@@ -1,3 +1,5 @@
+![maoawa's GitHub profile views](https://komarev.com/ghpvc/?username=maoawa&color=blueviolet&style=for-the-badge&abbreviated=true)
+
 ### 👋 Here's Mars, or Marshall
 - 🇨🇳 China
 - 🌱 Noob Programmer
