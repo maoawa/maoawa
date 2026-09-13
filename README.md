@@ -4,7 +4,7 @@
 - 🇨🇳 China
 - 🌱 Noob Programmer
 - 📖 Senior High Student
-- 🧒 16 yo (June 2009)
+- 🧒 17 yo (June 2009)
 - 🗣️ **English** & **Mandarin Chinese**
 - 🌏 ***Global Citizen***
 
